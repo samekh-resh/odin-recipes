@@ -4,3 +4,17 @@ This project will entail creating an About Me page utilizing the information bas
 
 # self-reflection afterwards
 
+
+
+
+
+
+resources
+
+https://jessicasrecipes.com/homemade-classic-macaroni-and-cheese-recipe/
+
+https://unsplash.com/photos/mac-and-cheese-served-on-a-white-plate-DcjbDVkleqQ
+
+https://www.twopeasandtheirpod.com/spinach-quiche/
+
+https://www.allrecipes.com/recipe/10813/best-chocolate-chip-cookies/choco
